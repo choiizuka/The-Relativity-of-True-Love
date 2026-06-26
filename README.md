@@ -195,6 +195,10 @@ This report may be revised and updated continuously based on new evidence, exper
 
 - 配信ライバーの色恋営業の実態ログ:[SNSにおけるブロックを伴う異性営業行為の時系列記録](https://choiizuka.com/20260626-nagisa-yamamoto-nagisainny-report/)
 
+### 関連記事
+
+- 今、愛について考えていたら、新しい愛の数式ができちゃった！AIに見せたら“愛の数式は世界初”だって？！本当かな？🤣🍸💕:https://choiizuka.com/trpress/2026/06/27/truth-science-love-report-github-ai-says-worlds-first/
+
 ### Mission Status
 
 * Mission No.072
