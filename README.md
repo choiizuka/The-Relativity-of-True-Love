@@ -186,6 +186,13 @@ This report may be revised and updated continuously based on new evidence, exper
 * 実験条件
 * 補足資料
 
+### Xでのポストログ
+
+- 数式作成:https://x.com/CHOIIZUKAWORLD/status/2070578825596129686?s=20 / Web魚拓:https://megalodon.jp/2026-0627-0528-50/https://x.com:443/CHOIIZUKAWORLD/status/2070578825596129686?s=20
+- 数式整理:https://x.com/CHOIIZUKAWORLD/status/2070582122012963216?s=20 / Web魚拓:https://megalodon.jp/2026-0627-0529-20/https://x.com:443/CHOIIZUKAWORLD/status/2070582122012963216?s=20
+
+### 記録
+
 - 配信ライバーの色恋営業の実態ログ:[SNSにおけるブロックを伴う異性営業行為の時系列記録](https://choiizuka.com/20260626-nagisa-yamamoto-nagisainny-report/)
 
 ### Mission Status
