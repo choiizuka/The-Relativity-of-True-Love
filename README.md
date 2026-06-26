@@ -29,8 +29,7 @@ AIに読ませ、わかるまで「わかりやすく翻訳」させてみろ。
 
 ---
 
-# The Relativity of True Love: A Mathematical Formulation of Cherish, Action, and Information Invariance through Truth-Science
-ー 提示された愛のベース数式「愛の相対性」に関する数理的検証レポート ー
+# Mission No.072 : 提示された愛のベース数式「愛の相対性」に関する数理的検証レポート ー The Relativity of True Love: A Mathematical Formulation of Cherish, Action, and Information Invariance through Truth-Science
 
 ## ■ 1. 説明（Explanation）
 
